@@ -1,1 +1,4 @@
-# Me-mandas-una-foto-
+# si o o no?
+ no segura?
+ segura?
+ 
